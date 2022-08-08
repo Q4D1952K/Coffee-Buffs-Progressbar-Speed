@@ -2,6 +2,7 @@
 Made by Sunny Scripts
 Discord: https://discord.gg/WK7nYmDhrN (24/7 support and updates)
 Tebex: https://sunny-scripts.tebex.io/
+Kofi:https://ko-fi.com/sunnyscripts
 
 # Description
 
